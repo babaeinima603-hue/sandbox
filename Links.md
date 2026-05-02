@@ -1,1 +1,17 @@
+## 🔗 Direct Download Links
+> Click on any link below to start downloading directly.<br><br/>
+
+
+### 📅 2026-05-03 01:21 IR
+- 🗜️ [Selti_1073671.mp4.zip](https://github.com/babaeinima603-hue/dontknownima/raw/main/dl/Selti_1073671.mp4.zip) `48.3MB`
+
+- 🗜️ [Selti_1073671.mp4.z01](https://github.com/babaeinima603-hue/dontknownima/raw/main/dl/Selti_1073671.mp4.z01) `95.0MB`
+
+- 🗜️ [Selti_1073671.mp4.z02](https://github.com/babaeinima603-hue/dontknownima/raw/main/dl/Selti_1073671.mp4.z02) `95.0MB`
+
+- 🗜️ [Selti_1073671.mp4.z03](https://github.com/babaeinima603-hue/dontknownima/raw/main/dl/Selti_1073671.mp4.z03) `95.0MB`
+
+- 🗜️ [Selti_1073671.mp4.zip](https://github.com/babaeinima603-hue/dontknownima/raw/main/dl/Selti_1073671.mp4.zip) `48.3MB`
+
+---
 
